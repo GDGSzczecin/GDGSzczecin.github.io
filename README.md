@@ -1,0 +1,1 @@
+# GDGSzczecin.github.io
